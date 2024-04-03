@@ -9,3 +9,5 @@
 - 📫 Entre em contato comigo pelo e-mail: marioleitecomercial@gmail.com
 
 # Aproveite o que a tecnologia tem de melhor 💻 💻
+
+![image](https://github.com/josemarioleite/josemarioleite/assets/31426252/0330a22e-f3a7-477e-aa90-c9c2762d8002)
